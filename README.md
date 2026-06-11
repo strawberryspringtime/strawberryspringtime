@@ -5,7 +5,7 @@
 <p align="center">
 my husband btw ^ <br>
   
-href="https://hits.sh/github.com/strawberryspringtime/hits/"><img alt="Hits" src="https://hits.sh/github.com/strawberryspringtime/hits.svg?label=flowers&color=FFA6BB&style=plastic"/></a>
+<img alt="Hits" src="https://hits.sh/github.com/strawberryspringtime/hits.svg?label=flowers&color=FFA6BB&style=plastic"/></a>
 <p align="center">
 im 20! Christian : mixed origin plural : auDD : fictosexual/phile : yumeship & fictkin!ㅤ<br>
 
