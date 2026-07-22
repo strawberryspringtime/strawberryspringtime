@@ -1,5 +1,5 @@
 <p align="center">
-i am not proship, darkship or an "anti". do not bother me about that ty.ㅤ<br>
+i am not proship, darkship or an anti. do not bother me about that pls and ty.ㅤ<br>
 <p align="center"
 <p><img src="https://i.postimg.cc/pLySMntP/ae5e2415dc4ff70be0aa6f833304720b.jpg" height="400"  ></p>
 <p align="center"> <a 
