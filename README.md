@@ -8,7 +8,7 @@ my husband btw ^ <br>
 <p align="center">
 <img alt="Hits" src="https://hits.sh/github.com/strawberryspringtime/hits.svg?label=flowers&color=FFA6BB&style=plastic"/></a>
 <p align="center">
-im 20! Christian : mixed origin plural : auDD : fictosexual/phile : yumeship & fictkin!ㅤ<br>
+im 20! Christian : mixed origin plural : auDD : fictosexual : yumeship & fictkin!ㅤ<br>
 
 <p align="center">
-dni: radqueer, -16, anti-pro/dark, anti-endo/willo, sysmed, syscourse, shipcourseㅤ<br>
+dni: radqueer, 16 and under, anti-endo/willo, sysmed, syscourse, shipcourseㅤ<br>
