@@ -1,3 +1,5 @@
+<p align="center">
+dni: radqueer, 16 and under, anti-endo/willo, sysmed, syscourse, shipcourseㅤ<br>
 <p align="center"
 <p><img src="https://i.postimg.cc/pLySMntP/ae5e2415dc4ff70be0aa6f833304720b.jpg" height="400"  ></p>
 <p align="center"> <a 
